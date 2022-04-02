@@ -1,5 +1,5 @@
 # [VS]  
-Vince Smolucha | 773.914.1390 | [smolucha.com](http://smolucha.com)
+Vince Smolucha | [smolucha.com](http://smolucha.com)
 
 ## Education
 
